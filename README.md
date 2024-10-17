@@ -1,0 +1,10 @@
+- 👋 Hi, I’m @selucinak
+- 👀 tenho 15 anos
+- 🌱 estou no primeiro ano do ensino médio
+- 💞 gosto de escutar musica
+- 📫 meu filme favorito é amor de aluguel
+- 😄 minha cantora preferida é a taylor swift
+- acredito em ets
+- meu idolo é o michael jackon
+-tenho 2 gatos e um é assassino
+-minha comida favorita é o henrique
