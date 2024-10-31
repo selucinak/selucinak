@@ -7,4 +7,3 @@
 - acredito em ets
 - meu idolo é o michael jackon
 -tenho 2 gatos e um é assassino
--minha comida favorita é o henrique
